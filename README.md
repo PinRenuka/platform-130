@@ -1,2 +1,2 @@
 # platform-130
-Renuka Aroka - 
+Renuka Aroka
